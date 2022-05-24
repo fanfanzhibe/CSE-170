@@ -21,3 +21,25 @@ I think I have many defects, but everyone has defects. Therefore, the thing that
 
 What will you not tolerate in others?
 I really hate the bad attitude. If you are late for the teamwork assignment, I can do your part for you. However, if someone has a bad attitude like treating teammates badly. I can't be tolerant of that.
+
+
+
+
+My Style?
+
+What I Value?
+
+How I like People to communicate with me?
+
+What i will not tolerate?
+
+How I make decisions?
+
+How you can help me?
+
+What people misunderstand about me?
+
+What I am bad at?
+
+My iNTERESTING Idiosyncrasies?
+
